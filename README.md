@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+ - 🔭 Currently Working on Learning Github
+ - 🌱 Current Learning Web Development
+ - 😄 Pronouns: N/A
+   > *Not a subscriber at this time*  
+   > **'He' has been an accepted gender neutral expression since before I was born. This is all just too silly**
